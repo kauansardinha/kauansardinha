@@ -1,4 +1,4 @@
-## Hi there 👋
+## me chupa na lenta
 
 <!--
 **kauansardinha/kauansardinha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
